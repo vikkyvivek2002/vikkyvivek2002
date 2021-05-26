@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @vikkyvivek2002
+- 👋 Hi, I’m @vivek vardhan 
 - 👀 I’m interested in codeing
 - 🌱 I’m currently learning B-tech 1st year
 - 💞️ I’m looking to collaborate on 
